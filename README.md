@@ -1,7 +1,11 @@
-# Saaditle.github.io
-# Hi My Name is Saad and i am a builder
-From when i was 13 i liked to build and create games but never had a chance to do so but now when i am 17 years-old i can
-I can build low-poly stuff,and more 
-I had no experience before with building stuff for other
-For Now i dont have any example of my work but soon i will
-I also Enjoy making and build 
+# Hi, I am Saad, I'm a builder for Roblox.
+
+I've enjoyed making and creating games since I was 14, but I never had the opportunity to immerse myself for real until now, at the age of 17.
+
+
+I work with low-poly builds and I'm constantly looking to improve.
+
+I have no experience building for anyone else as of now, but I'm looking forward to getting started.
+
+I currently have no examples to provide, but I will have some soon.
+I love creating and building things, and I'm looking forward to continuing to grow.
